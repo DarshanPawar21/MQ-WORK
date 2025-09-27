@@ -5,6 +5,7 @@
 
 
 
+https://drive.google.com/file/d/11mEjm6GFP3RM5cNR4a0d4qig2vZA5HOY/view?usp=drive_link
 
 
 
@@ -16,8 +17,6 @@
 
 
 
-
-Uploading Rad And White Education - Google Chrome 2025-09-26 19-51-41 (2) (1) (1).mp4…
 
 
 
